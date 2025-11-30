@@ -1,4 +1,4 @@
-@hansung.ac.kr2471383@hansung.ac.kr
+
 2471383@hansung.ac.kr
 2471383@hansung.ac.kr
 2471383@hansung.ac.kr
